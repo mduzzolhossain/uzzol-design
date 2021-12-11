@@ -1,4 +1,4 @@
-### 👋 Hello, I'm Uzzol Hossain
+# 👋 Hello, I'm Uzzol Hossain
 
 
 **uzzol-design/uzzol-design** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
