@@ -1,6 +1,8 @@
+![I am a Professional Graphic Designer & Watercolor logo designer](https://pbs.twimg.com/profile_banners/1457919966838079489/1639292781/600x200)
+
 ## 👋 Hello, I'm Md Uzzol Hossain
 #### I am a Professional Graphic Designer & Watercolor logo designer
-![I am a Professional Graphic Designer & Watercolor logo designer](https://pbs.twimg.com/profile_banners/1457919966838079489/1639292781/600x200)
+
 
 I emphasize on making logos that not just leave a mark on the memories of the person that looks at it but also glorify the true meaning of who you are.The logos that we focus on making are purely spiritual, watercolor, symbolic, Professional, feminine and hand drawn.
 
